@@ -1,5 +1,7 @@
 # Windows-Virus
-Virus for windows 100% FUD &amp; bypass any AV
+Virus for windows 100% FUD &amp; bypass any AV(Delete all files in windows &&& Lock all drives)
+
+☠️ Special tnx from : hack4lx ☠️
 
 👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
 
