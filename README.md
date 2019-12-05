@@ -20,5 +20,9 @@ Virus for windows 100% FUD &amp; bypass any AV(Delete all files in windows &&& L
 💢 https://linktr.ee/erfan4lx 💢
 
 ➖➖➖➖➖➖
+***
+Contact me to purchase the source of the virus file =>
 
-🌐 Contact me : https://telegram.me/erfan4lx 🌐
+🌐 Contact me via Email : erfan4lx@gmail.com 🌐
+🌐 Contact me via Telegram : https://telegram.me/erfan4lx 🌐
+***
