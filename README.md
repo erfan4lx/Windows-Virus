@@ -25,7 +25,7 @@ https://youtu.be/mQbIUCBLVZQ
 
 ➖➖➖➖➖➖
 ***
-Contact me to purchase the source of the virus file =>
+Contact me to purchase the special source of the virus file =>
 
 🌐 Contact me via Email : erfan4lx@gmail.com 🌐
 🌐 Contact me via Telegram : https://telegram.me/erfan4lx 🌐
