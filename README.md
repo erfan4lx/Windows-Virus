@@ -19,15 +19,11 @@ https://youtu.be/mQbIUCBLVZQ
 
 ➖➖➖➖➖➖
 
-💢 https://linktr.ee/erfan4lx 💢
+🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-➖➖➖➖➖➖
-***
-Contact me to purchase the special source of the virus file =>
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam
 
-🌐 Contact me via Email : erfan4lx@gmail.com 🌐
-🌐 Contact me via Telegram : https://telegram.me/erfan4lx 🌐
-***
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
 
 🆔 Our Website : https://M4nifest0.com
