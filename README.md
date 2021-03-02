@@ -7,7 +7,7 @@ Virus for windows 100% FUD &amp; bypass any AV(Delete all files in windows &&& L
 
 Show full video on YouTube : https://youtu.be/mQbIUCBLVZQ
 
-Show demo video on Instagram : https://www.instagram.com/p/CL7jpLXA6c_
+Show demo video on Instagram : https://www.instagram.com/p/CL7jpLXA6c_/
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
