@@ -5,7 +5,7 @@ Virus for windows 100% FUD &amp; bypass any AV(Delete all files in windows &&& L
  Just open the file with this name and enjoy the fucking Windows you want :)
 ***
 
-Show full video on YouTube : https://youtu.be/mQbIUCBLVZQ
+Show full video on YouTube : Video was deleted by YouTube, I'll upload it again but for now you can get it from me on Telegram or Email
 
 Show demo video on Instagram : https://www.instagram.com/p/CL7jpLXA6c_/
 
